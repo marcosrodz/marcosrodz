@@ -1,3 +1,3 @@
 - Hi, I’m @marcosrodz
 - I’m a student dev
-- i'm from Maringá
+- i'm from Maringá - Br
